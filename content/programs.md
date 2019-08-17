@@ -41,3 +41,6 @@ The challenges we find at sea are complex, continually emergent, and potentially
 Sailing is also great fun. At its best, it encompasses not only focused social intimacy, but an experience of the natural world at a level of immediacy rarely encountered under other circumstances. A sailing voyage can and should include shared home-cooked meals, music, conversation, swimming, stargazing, silence, sunrises, sunsets, creatures wild and free; an experience of bountiful essentials and scant cruft. A happy ship is the happiest of all possible places.
 
 Imagine a crew who relate to one another with kindness, who meet enormous challenges with skillful wisdom, who enjoy the ineffable grace of life with blissful enthusiasm. These people can fulfill great works.
+<!--stackedit_data:
+eyJoaXN0b3J5IjpbMTI3NDQxMzQwNV19
+-->
